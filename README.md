@@ -1,6 +1,10 @@
 # Introduction
 
-This repository depicts my own created secret language.
+This repository will slow-expose a criminal subculture embedded in Switzerland's society I shall call the Wizards.
+These people have ruined my life willingly. They knew I am supposedly smart. They knew I could have helped many.
+Their response: Abuse me. Use my brain. Brainwash me. Never help me.
+My response: I will over the next couple of months and years expose them and their criminal unlawful activities more and more.
+I know, I know. Nobody cares anyway. Nobody is scared anyway. This is just for my own amusement and pleasure.
 
 ## General ideas
 
